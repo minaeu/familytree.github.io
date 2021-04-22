@@ -1,6 +1,6 @@
 ## Ancestry, Family Mapping, and the Enayati-Uzetas
 
->[maternal](https://minaeu.github.io/familytree.github.io/map.md)  
+>[maternal](https://minaeu.github.io/familytree.github.io/map)  
 >paternal  
 >more about family mapping  
 
