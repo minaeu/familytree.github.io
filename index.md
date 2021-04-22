@@ -1,8 +1,8 @@
 ## Ancestry, Family Mapping, and the Enayati-Uzetas
 
->maternal 
->paternal 
->more about family mapping
+>maternal  
+>paternal  
+>more about family mapping  
 
 
 
