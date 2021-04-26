@@ -1,13 +1,13 @@
 ## Ancestry, Family Mapping, and the Enayati-Uzetas
 
->[maternal](/familytree.github.io/map)  
+>[maternal](#Enayati)  
 >paternal  
 >more about family mapping  
 
 
 
 
-
+###Enayati
 
 
 
