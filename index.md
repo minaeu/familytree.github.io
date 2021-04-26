@@ -1,7 +1,7 @@
 ## Ancestry, Family Mapping, and the Enayati-Uzetas
 
 >[maternal](#The-Enayatis)  
->[paternal](#The-Uzetas)
+>[paternal](#The-Uzetas)  
 >[more about family mapping](#The-Future-of-Ancestry)
 
 
