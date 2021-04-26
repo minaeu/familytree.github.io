@@ -1,19 +1,21 @@
 ## Ancestry, Family Mapping, and the Enayati-Uzetas
 
->[maternal](#Enayati)  
->paternal  
->more about family mapping  
+>[maternal](#The-Enayatis)  
+>[paternal](#The-Uzetas)
+>[more about family mapping](#The-Future-of-Ancestry)
 
 
 
 
-### Enayati
+### The Enayatis
 
 
 
 
+### The Uzetas
 
 
+### The Future of Ancestry
 
 
 ## Welcome to GitHub Pages
