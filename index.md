@@ -1,5 +1,7 @@
 ## Ancestry, Family Mapping, and the Enayati-Uzetas
 
+
+This is an ongoing project, as I continue to contact more family members, hear more stories, and learn about progress in family mapping science. Use the table of contents to orient yourself, or scroll through to see all currently available information. 
 >[maternal](#The-Enayatis)  
 >[paternal](#The-Uzetas)  
 >[more about family mapping](#The-Future-of-Ancestry)
