@@ -2,8 +2,8 @@
 
 
 This is an ongoing project and will be updated as I continue to contact more family members, hear more stories, and learn about progress in family mapping science. Use the table of contents to orient yourself, or scroll through to see all currently available information. 
->[maternal](#The-Enayatis)  
->[paternal](#The-Uzetas)  
+>[maternal](#The-enayatis)  
+>[paternal](#The-uzetas)  
 >[more about family mapping](#The-Future-of-Ancestry)
 
 
@@ -13,9 +13,13 @@ This is an ongoing project and will be updated as I continue to contact more fam
 
 Though many scattered in the aftermath of the Iranian Revolution, my maternal line can be traced back to two highly populated Iranian cities – Tehran, the capital, and Shiraz, where locals tend to have darker skin than many other parts of Iran. 
 
-![map of iran, highlighted tehran and shiraz](https://drive.google.com/file/d/1gQLneQ-HDs8RcRBRLoaz-B8EzgumYolI/view?usp=sharing)
+![map of iran, highlighted tehran and shiraz](file:///Users/minaenayatiuzeta/Downloads/Untitled%20design%20(3).png)
 
-However, in part due to the reach of the Persian empire, 
+However, in part due to the reach of the Persian Empire, our ancestry is much more mixed and our family is much more widespread than we'd assumed. In the map below, the red points are where we'd known of large clusters of family. The blue points are an incomplete map of our ancestry.
+
+![enayati ancestry map](file:///Users/minaenayatiuzeta/Desktop/New%20Folder%20With%20Items/screen/Screen%20Shot%202021-04-26%20at%208.57.03%20PM.png)
+
+
 
 
 ### The Uzetas
