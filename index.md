@@ -19,7 +19,7 @@ However, in part due to the reach of the Persian Empire, our ancestry is much mo
 
 ![enayati ancestry map](file:///Users/minaenayatiuzeta/Desktop/New%20Folder%20With%20Items/screen/Screen%20Shot%202021-04-26%20at%208.57.03%20PM.png)
 
-##### Jaleh Enayati
+#### Jaleh Enayati
 
 **Sent from country to country in pursuit of her daughter, Jaleh's life began again in the United States, but not necessarily for the better.**
 
@@ -46,7 +46,7 @@ When her husband came to Los Angeles two years later, it was without anything th
 
 ### The Uzetas
 
-##### Carlos Uzeta 
+#### Carlos Uzeta 
 
 
 ### The Future of Ancestry
