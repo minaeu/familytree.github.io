@@ -13,7 +13,7 @@ This is an ongoing project and will be updated as I continue to contact more fam
 
 Though many scattered in the aftermath of the Iranian Revolution, my maternal line can be traced back to two highly populated Iranian cities – Tehran, the capital, and Shiraz, where locals tend to have darker skin than many other parts of Iran. 
 
-![map of iran, highlighted tehran and shiraz](file:///Users/minaenayatiuzeta/Downloads/Untitled%20design%20(3).png)
+![map of iran, highlighted tehran and shiraz](https://drive.google.com/file/d/1gQLneQ-HDs8RcRBRLoaz-B8EzgumYolI/view?usp=sharing)
 
 However, in part due to the reach of the Persian empire, 
 
